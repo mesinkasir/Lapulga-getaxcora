@@ -38,10 +38,21 @@ Features :
 
 No need a database installation make your website very fast, and of course with SEO friendly include, simple and easy to use.
 
-[cek demo here →](https://www.youtube.com/watch?v=vqbeeSLq-Fo)
+[cek demo here →](https://youtu.be/xun6a1ZVpGg)
 
 more info [https://axcora.com/getaxcoracms](https://axcora.com/getaxcoracms)
 
 present by https://axcora.com
 
 Hapy codding !!
+
+--------------------------------------------------------------------------------------------------------------------
+
+### Buy me a coffee ☕️ ❤️  ✌🏻 
+
+with moneygram or western union
+
++ BANK CENTRAL ASIA
++ ACCOUNT NO : 0181884109
++ ACCOUNT NAME : SUCI CHANIFAH
++ IBAN/SWIFT CODE : CENAIDJA
